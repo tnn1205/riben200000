@@ -22,6 +22,4 @@
 
 现在就将本站加入书签，畅享2025年最新、最热、最爽快的日本AV内容。成人羞羞免费，为你开启真正“想看就看”的自由时代！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
-# riben200000
-464604504604
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben200000 ）</span> 
